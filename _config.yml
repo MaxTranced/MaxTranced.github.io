@@ -1,0 +1,8 @@
+excerpt_separator: ""
+pygments: true
+markdown: kramdown
+url: http://MaxTranced.github.io
+title: Creative Outlet
+tagline: Ideas to share
+description: My awesome new site
+paginate: 5
