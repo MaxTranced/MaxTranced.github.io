@@ -1,0 +1,12 @@
+---
+published: true
+title: Trusting My Intuition
+layout: post
+---
+I have related to my intuition in many ways over the course of time. I have eventually found a relatively stable way to relate to it, based on the idea that intuition is something that can be trusted if one chooses to do so.
+
+First off: once I recognize an intuition I don't second guess it. Second guessing, to me, means placing a guess on top of a guess. The first insight that popped up is supposed to be the genuine intuition, everything else on top of that is likely to lead to doubt and confusion. If I do second guess I can simply recover the intuition by ignoring the second guessing and by going back to the place of so-called "intuitive knowledge", that "knowing" that, after I've gotten into second guessing, would be logically called "first guessing". In more practical terms, asking a question about it will usually lead to a second guess. So asking "what does this mean?" actually obscures the intuition, the intuition already contains all of the knowing that's needed for its interpretation. Allowing myself to know is easily achieved by a simple day-to-day practice: avoiding saying "I don't know" when I do know and by responding "I don't know" when I don't know.
+
+Once I recognize an intuition as being "my intuition" it's pretty obvious that it not someone else's intuition. So to the extent that I trust myself I can also trust my intuition, for the simple reason that it's mine. I also link this to how I use the intuition. Usually my intuition is quite informative for decision making. So it usually has a prominent effect of me doing something differently, basically my self changing from my present self to my future self. I see this as intuition being a message cross-time from my future self to my present self, signaling a safe and/or desired transition. So, to the extent that any of this makes sense, it does make sense to trust it: it's mine and it will lead me to the future I want, even if I don't yet see how.
+
+To the obvious question of how can my future self send a message into the past to my present self, the answer is equally obvious: the future self will figure that out in the future. As long as I know the intuition as being mine there's no concern there. Sure, one could argue that such a chain of intuition will lead to death, therefore it should not be trusted. However, as long as I take the stance that death cannot be avoided, that part fits quite nicely into the big picture too.
